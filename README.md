@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Software Engineer
 -----------------
 
-I've been learning to code for 5 year. ..........
+I've been learning to code for 6 year. ..........
 
 * 🌍  I'm based in Bangsean, Chonburi
 * 🖥️  See my portfolio at [My port me waiting update please wait.......](http://github.com/ochiovip)
